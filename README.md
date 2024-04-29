@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning cyber apanyan security
 - 💞️ I’m looking to collaborate on wadofok
 - 📫 How to reach me discord 
-- 😄 Pronouns: ri/tan
+- 😄 Pronouns: ri/tano
 - ⚡ Fun fact: im so cool
 
 <!---
